@@ -1,3 +1,3 @@
 # workshop-sec-1
- for one of my 5 favorite classes this semester
+ for my favorite class this semester
 Mario was here, follow the github and linkin pls
